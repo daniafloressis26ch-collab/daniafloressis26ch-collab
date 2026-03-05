@@ -18,6 +18,6 @@ Su perfil combina habilidades científicas, tecnológicas y humanas, lo que la c
 
 ## Vista a Futuro
 
-Mariana aspira a convertirse en una profesional de la psicología comprometida con el bienestar emocional de las personas. Sueña con especializarse en psicología clínica o educativa, y utilizar también sus conocimientos en sistemas informáticos para innovar en el uso de herramientas digitales aplicadas a la salud mental.
+Dania aspira a convertirse en una profesional de la psicología comprometida con el bienestar emocional de las personas. Sueña con especializarse en psicología clínica o educativa, y utilizar también sus conocimientos en sistemas informáticos para innovar en el uso de herramientas digitales aplicadas a la salud mental.
 
 Se visualiza como una mujer exitosa, empática y preparada, capaz de ayudar a otros a comprender sus emociones y enfrentar los desafíos de la vida. Su meta no solo es alcanzar logros profesionales, sino también crecer constantemente como ser humano, aprendiendo de cada experiencia y dejando una huella positiva en la sociedad.
